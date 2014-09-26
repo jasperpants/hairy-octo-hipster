@@ -13,4 +13,6 @@ Why the elephant was walking by
 
 was really such a puzzle.
 
-It was October
+It was October and as we know
+
+Elephants have trouble with circulation in their big toe.
